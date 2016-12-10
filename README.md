@@ -9,3 +9,4 @@
 # 3andna loubia
 # another just 3adssa
 #stashing stuff things u need to modify
+#have no freaking idea where i am goin with this
